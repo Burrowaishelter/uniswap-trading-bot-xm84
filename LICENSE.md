@@ -1,4 +1,4 @@
-# 
+# Get the ultimate uniswap trading bot with advanced Automation Script for uniswap trading bot | MEV-strategies + blockchain-scanning. Featuring MEV-strategies and
 
 
 
